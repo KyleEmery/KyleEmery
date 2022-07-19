@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @RiverGuY
+- 👋 Hi, I’m @
 - 👀 Time spent learning mostly
-- 📫 How to reach me ... Don't
+- 📫 How to reach me...don't
